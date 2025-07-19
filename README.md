@@ -1,1 +1,9 @@
 # Is-Care-and-Cure-Multispecialty-Hospital-open-24-hours-in-Ahmedabad-
+
+Care and Cure Multispecialty Hospital in Ahmedabad operates round‑the‑clock, 365 days a year, so you can walk in or be brought by ambulance at any hour. Their 24 × 7 model is anchored by a fully staffed Emergency & Trauma Centre that keeps senior physicians, critical‑care nurses, anaesthetists, and on‑call surgeons on site throughout the night. The hospital’s Intensive Care Unit, Neonatal ICU, Cardiac Care Unit, and High‑Dependency Unit all run continuous shift rotas, ensuring ventilator support, invasive monitoring, and rapid response procedures remain uninterrupted.
+
+Behind the emergency bay, an in‑house diagnostics hub (CT, digital X‑ray, ultrasound, pathology lab) and a licensed blood bank stay open after regular OPD hours, so life‑saving tests or transfusions never wait for “morning rounds.” A 24‑hour pharmacy dispenses everything from stat cardiac meds to routine antibiotics, while the hospital’s own fleet of ACLS‑equipped ambulances is coordinated by a central helpline that tracks live GPS feeds and can dispatch within minutes across Ahmedabad and satellite towns.
+
+For non‑emergency needs, late‑evening OPD slots and overnight admissions are available—useful if you work shifts or need observation without losing an extra day. Relatives have access to a 24‑hour information desk, cafeteria, and digital payment counter so billing and queries can be settled even at 3 a.m. If you’re planning a visit, you can still call the reception or emergency numbers printed on the hospital website to confirm bed or specialist availability, but you do not need an appointment for critical care. Walk‑ins and ambulance arrivals are triaged immediately on arrival at the ER bay. 
+
+https://careandcurehospital.co.in/hypertension-causes-and-management/
